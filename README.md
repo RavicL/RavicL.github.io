@@ -8,9 +8,15 @@ Nirvana is an American alternative rock group whose breakthrough album, Nevermin
 ![NIRVANA MEMBERS](https://github.com/RavicL/RavicL.github.io/assets/152232151/59cebd39-21e9-44e1-832a-3b41cccc61e7)
 )
 
+
+
 From Aberdeen, near Seattle, Nirvana was part of the postpunk underground scene that centred on K Records of Olympia, Washington, before they recorded their first single, “Love Buzz” (1988), and album, Bleach (1989), for Sub Pop, an independent record company in Seattle. They refined this mix of 1960s-style pop and 1970s heavy metal–hard rock on their first album for a major label, Geffen; Nevermind, featuring the anthemic hit “Smells Like Teen Spirit,” was the first full expression of punk concerns to achieve mass-market success in the United States.
 
 <iframe style="border-radius:12px" src="https://open.spotify.com/embed/album/1KVGLuPtrMrLlyy4Je6df7?utm_source=generator" width="100%" height="352" frameBorder="0" allowfullscreen="" allow="autoplay; clipboard-write; encrypted-media; fullscreen; picture-in-picture" loading="lazy"></iframe>
+
+
+
+
 
 On 1 March 1994, Nirvana played an intimate show in Germany- not knowing it would be their last. Hot off the success of their 1993 In Utero album, Kurt Cobain, Krist Novoselic and Dave Grohl took to the stage at Munich's Terminal Einz (1) to play what was to be their final live appearance.
 
