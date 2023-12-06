@@ -15,4 +15,3 @@ From Aberdeen, near Seattle, Nirvana was part of the postpunk underground scene 
 On 1 March 1994, Nirvana played an intimate show in Germany- not knowing it would be their last. Hot off the success of their 1993 In Utero album, Kurt Cobain, Krist Novoselic and Dave Grohl took to the stage at Munich's Terminal Einz (1) to play what was to be their final live appearance.
 
 <iframe width="560" height="315" src="https://www.youtube.com/embed/vRHCAFiXVTM?si=QqgNhcAe8D4p51Eh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" allowfullscreen></iframe>
-
